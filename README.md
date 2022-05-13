@@ -1,6 +1,6 @@
 **大家好!!:smile::tiger::baby_chick:**
 
- :point_right:我是张乐乐，就读于淄博职业学院，预计2022年毕业。
+ :point_right:。
 
  :point_right:我会java，photoshop、html+css等等
 
